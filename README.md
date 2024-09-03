@@ -12,3 +12,5 @@ You can click the Preview link to take a look at your changes.
 --->
 ![Screenshot_۲۰۲۴-۰۸-۲۶-۱۳-۱۵-۱۲-۰۳۵_com google android apps photos](https://github.com/user-attachments/assets/de8d3c50-4166-4d0d-84e6-c27c557bdb16)
 ![Screenshot_۲۰۲۴-۰۸-۲۸-۱۵-۳۶-۳۲-۵۵۰_com wallet crypto trustapp](https://github.com/user-attachments/assets/88a2b788-aff2-4d9f-b1b5-5cc184681a75)
+
+💲support me
